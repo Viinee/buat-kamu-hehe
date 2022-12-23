@@ -1,2 +1,1 @@
-# buat-kamu-hehe
-heheh
+
